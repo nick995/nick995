@@ -1,1 +1,1 @@
--Uofu CS Major Seniior 
+-UofU CS Major Junior 
